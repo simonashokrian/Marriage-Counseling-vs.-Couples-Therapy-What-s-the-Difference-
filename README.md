@@ -12,7 +12,7 @@ Before choosing support, it helps to understand what each approach is designed t
 
 ### What Is Marriage Counseling?
 
-Marriage counseling generally centers on concerns affecting the relationship today. The focus is on helping couples communicate more effectively, manage conflict, and work toward shared goals.
+[Marriage counseling](https://www.simonashokrianpsychotherapy.com/services) generally focuses on current relationship concerns, helping couples improve communication, manage conflict, and work toward shared goals.
 
 Common topics include:
 
