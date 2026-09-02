@@ -112,7 +112,7 @@ Consider asking:
 
 A strong therapeutic fit helps both partners participate openly and comfortably.
 
-### Consider Your Relationship Goals
+## Consider Your Relationship Goals
 
 Before choosing a therapist, think about what you want to improve in your relationship.
 
@@ -121,7 +121,7 @@ Your goals might include:
 - Resolving a specific challenge
 - Strengthening your relationship over time
 - Improving communication
-- Involving other family members through family therapy NYC when appropriate
+- Involving other family members through [family therapy NYC](https://www.simonashokrianpsychotherapy.com/) when appropriate
 
 If you're searching for a marriage therapist nyc or exploring couples therapy nyc, look for someone whose experience aligns with the support you're seeking. Practices such as Simon Ashokrian Psychotherapy are one example of providers that offer relationship and family therapy.
 
